@@ -1,5 +1,5 @@
 # Personagem-de-plataforma
-##atividad##e do dia 18-07-2019 ***Bruno Manente*** 
+#atividade do dia 18-07-2019 ***Bruno Manente*** 
 
 [endereço do linkedin](https://www.linkedin.com/m/login/)
 
