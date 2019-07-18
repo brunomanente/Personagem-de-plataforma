@@ -11,6 +11,8 @@
 - Recursos
 - Sprites/game art 2d
 
-![legal](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwjbuLiJx7_jAhVeILkGHQxIDzQQjRx6BAgBEAU&url=https%3A%2F%2Frevistagalileu.globo.com%2FCiencia%2Fnoticia%2F2014%2F10%2Flinha-entre-loucura-e-genialidade-e-mais-tenue-do-que-se-imaginava.html&psig=AOvVaw30EcwXfo9rvRbAIE9OgPW4&ust=1563576653126974)
+![legal](https://cdn.pensador.com/img/frase/al/be/albert_einstein_nao_ha_maior_sinal_de_loucura_do_que_fa_lw68edn.jpg)
+
+> FRASE.
 
  
